@@ -1,2 +1,4 @@
-![](https://media.discordapp.net/attachments/1179004764076384390/1191825071539495012/Untitled522_20240103022655.png?ex=65a6d898&is=65946398&hm=fe8d8e422f973885afe470c72158f72b35ef660533abf3c875f97d1b83ac6226&)
-instead of harassing how about U find out what happened first . it makes U look awful even more ☹️ i wuv the attention Btw 
+“ CONTAGIOUS KILLING AND INTERNAL DISTRESS , ”
+![](https://media.discordapp.net/attachments/1179004764076384390/1192658903083790366/IMG_20240105_094005.jpg?ex=65a9e129&is=65976c29&hm=bc7e3a5e3d85d60d7ea416a03891920075e543c664f649ba20816837289e7aa7&)
+“ HOMICIDE OR SUICIDE WILL BE THE CAUSE OF DEATH . ”
+[ac](https://twitter.com/taedoongee/status/1731464710502109557?t=-cqIGqujCl7IXCNHPBndlA&s=19)
