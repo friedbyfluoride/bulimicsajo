@@ -1,2 +1,2 @@
 STOP COPYING MY SIMON YOU DERANGED FUCKS KYSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSSS
-![](https://media.discordapp.net/attachments/1179004764076384390/1200028680357953636/cal-gabriel-zero-day.gif?ex=65c4b0cc&is=65b23bcc&hm=03fb2b58582e8c2c8e98ac901b98a55af499290a5958516df3adf3fb52d5d405&)
+![cal-gabriel-zero-day](https://github.com/bulimicsajo/bulimicsajo/assets/130197952/a0ecad50-f06a-4a44-8e81-54068102d9c0)
