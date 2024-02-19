@@ -1,2 +1,2 @@
-
+i dont want zionists AND israelis to interact with me. Israel is not a fucking country i hope U get bombed off the map and they will sniped ur NASTY Pinocchio nose bitch
 ![](https://media.discordapp.net/attachments/1179004764076384390/1206903354240798740/IMG_20240207_124307.jpg?ex=65ddb356&is=65cb3e56&hm=3830ac6c5c52fc7d1cfb27253695111acbea2c0c8fd21785284299d5b418b1da&)![](https://media.discordapp.net/attachments/1179004764076384390/1206903354790383616/IMG_20240208_060331.jpg?ex=65ddb356&is=65cb3e56&hm=f90e1e984d228815ad0c761c64e9938747bdbbcce83271cd19944eec121f5701&)
